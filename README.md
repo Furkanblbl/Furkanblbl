@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Furkanblbl . I'm studying department of computer engineering at the Karadeniz Technical University.
+- 👀 I’m interested in programming languages.   
+- 🌱 I’m currently learning python programming language and English.
+- 📫 My instagram adress : @frkn.bulbul   and My personel e-posta adress : furkanbulbul2222@gmail.com 
